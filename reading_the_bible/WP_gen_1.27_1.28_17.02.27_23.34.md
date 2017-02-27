@@ -23,7 +23,11 @@ NIV的翻译照搬了KJV，只不过颠倒了词序，使之符合现代英语�
 
 > So God created man in his own image, in the image of God he created him; male and female he created them.
 
-思考：
+吕振中的译法比较接近于原文的语感。
+
+> 吕振中 创1:27 上帝就按自己的形像创造人∶按上帝的形像创造他∶创造他们有男有女。
+
+####思考：
 
 为什么旧约要三次强调上帝造人？
 

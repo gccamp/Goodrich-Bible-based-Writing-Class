@@ -1,5 +1,7 @@
-This CUV bible without chapter and verse number is processed by zoom.quiet who is one of friends of wangpei, the Lord's servant.
+This CUV bible without chapter and verse number has been coded and processed by zoom.quiet who is a friend of wangpei, the Lord's servant.
 
-Many thanks to him and his family. 
+Many thanks to zoom.quiet and his family. 
 
-God bless him and all he loves. 
+God bless him and all he loves forever and ever.
+
+Amen. 
